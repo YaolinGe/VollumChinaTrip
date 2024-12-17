@@ -1,0 +1,1 @@
+- Document all my old files and notes and so on to make them digital so that I can share later. 
